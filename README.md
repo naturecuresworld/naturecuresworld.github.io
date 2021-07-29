@@ -1,5 +1,1 @@
-# naturecuresworld.github.io
-# naturecuresworld.github.io
-# naturecuresworld.github.io
-# naturecuresworld.github.io
-# naturecuresworld.github.io
+The best way to heal is the natural way.
